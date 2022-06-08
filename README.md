@@ -3,4 +3,5 @@ Now this blog will keep me motivated to do more work than what i did previously 
 Feel free to have a peak into my daily life.
 
 Installments:
+[FUCK IT!!](dailyblog/fuckit.md)
 [16-05-2022](dailyblog/16052022.md)
