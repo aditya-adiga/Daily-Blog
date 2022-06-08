@@ -19,4 +19,6 @@ Now this is followed by the stupid internals for which i study only a day before
 ## Projects
 I am working on a bunch of projects right now, have a lot of commitment but i have been procrastinating a lot lately.It pissed me off too much so i have decided to start this blog like this where i will be updating my work so i can keep my progress in check and myself on track.
 
+So Now I have Decied to say Fuck it.If im gonna get grinded with so much pressure it gives me a lot of adrenaline rush and i like it a lot so im gonna put myself under a lot pressure conditions to make my life more intresting and have fun with life as much as i can while enjoying it as well.I have a bunch of stuff i want to do and i will get it done, you will see XD.
+
 ### Sayonara till next time.
