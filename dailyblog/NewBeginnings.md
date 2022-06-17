@@ -14,6 +14,6 @@ Yeah now that i remember i am performing a live music session today at a bistro 
 
 1. [ehsas by myself](https://www.youtube.com/watch?v=_afBX-3RcZ4)
 2. [love yourself by justin beiber](https://www.youtube.com/watch?v=oyEuk8j8imI)
-3. [chaand baaliyan](https://www.youtube.com/watch?v=7c3-Gei5j4w)
+3. [chaand baaliyan by aditya a](https://www.youtube.com/watch?v=7c3-Gei5j4w)
 
 Hopefully it goes fine.
